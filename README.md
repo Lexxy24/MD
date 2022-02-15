@@ -1,4 +1,4 @@
-# Script Bot Multi Device
+# Script Bot MD
 
 https://cararegistrasi.com/F2vNCoTY
 
