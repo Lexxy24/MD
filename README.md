@@ -1,2 +1,4 @@
 # SC Bot
-https://youtu.be/1i_fyaAhIP4
+https://cararegistrasi.com/F2vNCoTY
+
+```Link di atas terakhir```
